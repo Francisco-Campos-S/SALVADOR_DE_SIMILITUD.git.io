@@ -1,1 +1,0 @@
-# SALVADOR_DE_SIMILITUD.git.io
